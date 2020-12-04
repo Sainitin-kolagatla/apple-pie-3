@@ -1,0 +1,3 @@
+Preheat oven to 425°F. Toss apples with sugars, raisins, tapioca, cinnamon, nutmeg and water; let stand 15 minutes. Spoon into 10-inch pie plate; dot with butter.
+Roll 1 of the pie crusts to 12-inch circle on lightly floured surface; place over filling. Seal and flute edge. Cut several slits in crust to allow steam to escape. Cut decorative shapes from remaining pie crust. Moisten with small amount of additional water; arrange on crust on pie.
+Bake 15 minutes. Reduce oven temperature to 350°F. Bake an additional 45 minutes or until juices form bubbles that burst slowly. Serve warm.
